@@ -12,4 +12,4 @@ I began seriously considering a career switch, and conducted my own research in 
 <br>
   <a href="https://cch41.github.io/">Portfolio</a>
 <br>
-  <a href="https://drive.google.com/file/d/14IIGnGND8kvPvGeqsHCSFG-MXaEcZAwM/view">Resume</a>
+  <a href="https://drive.google.com/file/d/1czOeW-ztukCtQGvm6FJuxcgc1pfCPals/view">Resume</a>
