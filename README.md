@@ -6,7 +6,6 @@ I began seriously considering a career switch, and conducted my own research in 
 
 
 ## Find me around the web 🌎: 
-<br>
 <a href="https://www.linkedin.com/in/connor-henderson-833504123/">LinkedIn</a>
 <br>
   <a href="https://angel.co/u/connor-henderson-2">AngelList</a>
