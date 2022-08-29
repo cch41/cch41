@@ -1,4 +1,4 @@
-# SWE with an interest in mental health and ML, feel free to get in touch! 📬 🌎
+# SWE with an interest in ML, feel free to get in touch 📬 🌎
 <a href="https://www.linkedin.com/in/connor-henderson-833504123/">LinkedIn</a>
 <br>
   <a href="https://angel.co/u/connor-henderson-2">AngelList</a>
